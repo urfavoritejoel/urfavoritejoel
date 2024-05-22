@@ -5,3 +5,4 @@
    In addition, I’ve spent years now as a comedian specializing in improvisation, or improv. The greatest skills I’ve learned from countless improv shows is working with a group of talented people to support each other. The most important concept in improv is to make your team members look good. I’m not the only star of the show, we all are.
    I’ve applied this concept to jobs, since working as a team is extremely important, and I always reach out a hand to help all coworkers stay on even ground. Looking forward to the next team I’m working on.
 
+Contact - yourfavoritejoel@gmail.com
